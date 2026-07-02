@@ -1,5 +1,5 @@
 # Leave It Better
-The home of **Leave It Better**: a long-term mission to create measurable positive impact for people, animals, and the planet.
+The home of **Leave It Better**: a long-term mission to create measurable positive impact for people, animals, plants and the planet.
 
 Leave It Better is a long-term stewardship initiative focused on inspiring people to leave the world, their communities, ecosystems, and relationships better than they found them.
 
